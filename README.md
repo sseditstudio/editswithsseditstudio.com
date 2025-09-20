@@ -1,1 +1,1 @@
-# editswithsseditstudio.github.io
+# editswithsseditstudio.com
