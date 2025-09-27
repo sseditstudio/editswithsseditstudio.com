@@ -1,1 +1,2 @@
-# sseditstudio.github.io
+# sseditstudio.com
+
